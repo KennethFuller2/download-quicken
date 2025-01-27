@@ -1,4 +1,5 @@
 # Download Quicken: How to Get Started Easily
+![Download Quicken](https://github.com/user-attachments/assets/844e0f05-549b-41a9-ac15-c6394e03c13a)
 
 ## Download Quicken for Windows: Features and Capabilities
 
